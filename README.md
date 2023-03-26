@@ -7,3 +7,4 @@ lost.mp3 is you lost!
 win2.mp3(whic is actually background music) is hidden wave
 sooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooooo
 yeaap
+aso if yu use this credit me or die>:(((((((
